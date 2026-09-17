@@ -21,10 +21,12 @@ c+h always welcome! Im often offtab but whispers usually get my attention back!<
 <img src="https://64.media.tumblr.com/2cc728a4724099faedde0150ce595cd7/d4878f05d15685b1-98/s400x600/96e1e5534f0d76013ad2542af341544b5150e618.gifv"width="150" height="20">
 <img src="https://64.media.tumblr.com/cfe74f603f2310ec5fdf3cdda55e66bb/d4878f05d15685b1-00/s400x600/8055621813498f17fedcdf99ee750815287a9177.gifv"width="150" height="20">
   
-  <p align="center"><img src="https://64.media.tumblr.com/e38cd3c3319e0e23e1e83e30ef00187b/013a9452e8620369-06/s75x75_c1/feef7d2836b04b2b9355d867a35087953193d42b.gifv">
+  <p align="center"><img src="https://64.media.tumblr.com/e38cd3c3319e0e23e1e83e30ef00187b/013a9452e8620369-06/s75x75_c1/feef7d2836b04b2b9355d867a35087953193d42b.gifv"><p align="left"><img src="https://komarev.com/ghpvc/?username=CanaryPr0ject&color=a60a02&style=flat-square&label=get-well-card-signatures" />
     <br>
     
+
 <img align="left" width="160" height="200" src="https://static.wikia.nocookie.net/vocamv/images/9/97/Freyja_mv_illust.png/revision/latest?cb=20250421151846#right">
+
 <p align="right">I digitally paint, do photography,sew and cosplay in my freetime! <br>
 My main intersts are MCYT (Hermitcraft, Life Series, POW SMPs) <br>
 but Im into a lot of games like Arknights, IDV, DST and MUCH MORE <br>   
