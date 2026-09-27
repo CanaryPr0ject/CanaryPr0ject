@@ -9,9 +9,11 @@
 <img align="right" width="200" height="200" src="https://i.postimg.cc/jdzRZVXb/spepy.png">
 
 ### Edgar/'Nary
+<img align="right" src="https://f2.toyhou.se/file/f2-toyhou-se/images/128508258_NSPjwk7WXYdrb76.png" width="100" height="50">
 Fashion Major graduate, Software developing major<br> 
-Usually hanging around hermithill or generally anywhere with friends,<br> 
-c+h always welcome! Im often offtab but whispers usually get my attention back!<br> 
+Usually hanging around hermithill or generally anywhere <br> 
+with friends, c+h always welcome! Im often offtab but whispers <br> 
+and pray that I notice in time 
 
 <p align="left">
 <img src="https://64.media.tumblr.com/ffc5c1b9e594a603c101814fd53f0893/641325de56fe55eb-ab/s250x400/a7a9733145c64428634314a7106e6c0e25991d37.gifv"width="150" height="20">
@@ -34,7 +36,7 @@ I also love TTRPGs CRAZY BAD, please I miss playing HMU <br>
   
 <p align="right">
 <img src="https://64.media.tumblr.com/423d92b7a25038bb1dbb8111606f2717/5df2c19bf676b80a-84/s100x200/1ab4c4d08c955b1f9c18e2bf085ca64c5c4f1164.pnj"width="100" height="50">
-<img src="https://64.media.tumblr.com/7309535162be1e082184b55679200ede/87b7984b993082ec-19/s100x200/92d03097c4252cd7e292c721a2cdaf119739b7f9.gifv"width="100" height="50">
+<img src="https://64.media.tumblr.com/2dec12683d9e3e57d02546983750b978/94d71585d89fb987-c4/s250x400/0aa782cf09167522ad4ce4df27e4e1f56138123e.gifv"width="100" height="50">
 <img src="https://64.media.tumblr.com/1d6cd315a6b1f992ea3151d4f6a205d9/cb8e0ff461afb032-13/s100x200/c5185320110fd6c080c67f7e9fedcf42d5c09a0d.gifv"width="100" height="50">
 <img src="https://64.media.tumblr.com/33040e38bb0d60d7ab6e1e664560b2a7/430287f45c8133f7-6d/s100x200/81c110fc05a6cd024a0f005bab35959331c85639.gifv"width="100" height="50">
 <img src="https://64.media.tumblr.com/7f34c15bf08c9dd6b879443bf9543b08/0455fac414385656-fa/s100x200/1795d315eef74b5e89d85f0598b458f47d2b6042.gifv"width="100" height="50"><img src="https://64.media.tumblr.com/f8b98b4229f2af71ec61dd232c9f88dc/a9ddffc3320c07ad-46/s100x200/775ef0505fcc0c3aa290b86104f429d0d39130f8.gifv"width="100" height="50">
