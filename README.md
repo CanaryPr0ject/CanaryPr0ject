@@ -5,11 +5,10 @@
 <p align="center">$\color{#991d14}{\textsf{ "they don't tell stories about people like me
 'cause what is there to tell?" }}$ 
 <br>
-
 <img align="right" width="200" height="200" src="https://i.postimg.cc/jdzRZVXb/spepy.png">
 
 ### Edgar/'Nary
-<img align="right" src="https://f2.toyhou.se/file/f2-toyhou-se/images/128508258_NSPjwk7WXYdrb76.png" width="100" height="50">
+
 Fashion Major graduate, Software developing major<br> 
 Usually hanging around hermithill or generally anywhere <br> 
 with friends, c+h always welcome! Im often offtab but whispers <br> 
@@ -44,8 +43,8 @@ I also love TTRPGs CRAZY BAD, please I miss playing HMU <br>
 <img src="https://64.media.tumblr.com/ddc1c7a06487ea313e85934d1824d319/be7300995b975a06-9f/s100x200/01a01ac35847b75a4331ad5c1d5791bff45ee1fb.gifv"width="100" height="50">
 <img src="https://64.media.tumblr.com/8d5c303a770ae024632327f63d7269ad/ccd0083ebc72c0ee-11/s400x600/bb65222bfc8aee5111aee716150d1d10ff61e0df.gifv"width="100" height="50">
 <img src="https://64.media.tumblr.com/0b250c54dea4229df5d7a47f7c011911/7bf7ca88a92b27d3-15/s100x200/d187c8626a11c36fb01b06a0b5c69a78334cf03f.gifv"width="100" height="50">
+<img align="right" src="https://i.postimg.cc/mg1vRVhS/the.png"width="150" height="150">
 
-  
 <p align="center">$\color{#991d14}{\textsf{ "5 PM naps and childproof caps
 my best friends, Adderall and Elavil" }}$ 
   
