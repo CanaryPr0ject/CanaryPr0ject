@@ -51,4 +51,4 @@ my best friends, Adderall and Elavil" }}$
 <p align="center"><img src="https://64.media.tumblr.com/3e4561c2320b610a3101a84367ab2c6a/8bd9d16f5553d83e-70/s640x960/8b19790f2f3e181b3db83a6b747bbdcd216344e3.gifv">
 
 <p align="center">If you are still here, this is your sign to join our VSMP fangame server(+15), <b><a href=https://discord.gg/GxUhc7kzj">Yurihurst!</a></b>
-<p align="center"><img src="https://f2.toyhou.se/file/f2-toyhou-se/images/131791804_J5GVSyxj4DxgJaE.png"width="150" height="150">
+<p align="center"><img src="https://64.media.tumblr.com/b2aeed27a97e15afad15e0e85b3ae39e/e361e2152b57b05c-78/s2048x3072/a49fe383f322eb86d853540b02553cd92bcf20d8.pnj"width="200" height="130">
